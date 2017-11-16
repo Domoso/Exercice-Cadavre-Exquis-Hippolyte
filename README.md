@@ -8,4 +8,4 @@ La recette de sa préparation demeurait connue par seulement 2 individus du grou
 
 Le vilain méchant de la téci attaqua les deux *Cydruis*
 
-Lorsque le **__codeurs.__** s'en aperçurent...
+Lorsque les **__codeurs.__** s'en aperçurent, Ils burent une gorgée de leur potion.
