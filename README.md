@@ -14,3 +14,6 @@ Nous somme en 1444 dans la région de la foret Noir, par un temps de brume, une 
 
 Il boit sa potion? Vu qu'elle sa recette est un secret, son existance aussi je suppose :/ La foret noire est un bon endroit pour en boire.
 
+## Invitation jeu Web
+Coucou, moi c'est Bernard, je joue sur Forge Of Empires et je suis __"Marchand de Frite"__ dans le monde de Parkog
+Ce serait sympa de s'y rejoindre histoire de destresser du monde administratif du FOREM
