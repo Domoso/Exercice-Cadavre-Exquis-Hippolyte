@@ -9,3 +9,5 @@ La recette de sa préparation demeurait connue par seulement 2 individus du grou
 Le vilain méchant de la téci attaqua les deux *Cydruis*
 
 Lorsque les **__codeurs.__** s'en aperçurent, Ils burent une gorgée de leur potion.
+
+Nous somme en 1444 dans la région de la foret Noir, par un temps de brume, une homme marche dans la foret sombre avec une pelle a la main. mais que fait cet homme ?
