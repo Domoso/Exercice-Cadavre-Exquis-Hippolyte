@@ -19,3 +19,9 @@ Coucou, moi c'est Bernard, je joue sur Forge Of Empires et je suis __"Marchand d
 Ce serait sympa de s'y rejoindre histoire de déstresser du monde administratif du FOREM
 
 Je rechange mon texte, car hier, je n'ai pu merger because j'avais oublier de cliquer sur "**accepter**" donc --> __Error 403__
+
+Premier arrêt, le train ne démarre pas. Y a-t-il un Docteur?  
+Depuis quand les Docteurs prennent le train et laissent leur tracteur!  
+Ouf, je change de train et arrive à l'heure, j'ai eu vraiment peur.  
+
+
