@@ -16,4 +16,4 @@ Il boit sa potion? Vu qu'elle sa recette est un secret, son existance aussi je s
 
 ## Invitation jeu Web
 Coucou, moi c'est Bernard, je joue sur Forge Of Empires et je suis __"Marchand de Frite"__ dans le monde de Parkog
-Ce serait sympa de s'y rejoindre histoire de destresser du monde administratif du FOREM
+Ce serait sympa de s'y rejoindre histoire de déstresser du monde administratif du FOREM
