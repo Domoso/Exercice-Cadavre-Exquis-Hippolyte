@@ -14,6 +14,8 @@ Nous somme en 1444 dans la région de la foret Noir, par un temps de brume, une 
 
 Il boit sa potion? Vu qu'elle sa recette est un secret, son existance aussi je suppose :/ La foret noire est un bon endroit pour en boire.
 
+Surtout durant les nuits d'automne !
+
 the secret is to stay __motivated__ 
 
 *HODOR* **HODOR** HODOR!
