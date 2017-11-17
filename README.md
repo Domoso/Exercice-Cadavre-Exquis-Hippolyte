@@ -24,4 +24,7 @@ Premier arrêt, le train ne démarre pas. Y a-t-il un Docteur?
 Depuis quand les Docteurs prennent le train et laissent leur tracteur!  
 Ouf, je change de train et arrive à l'heure, j'ai eu vraiment peur.  
 
+Quand un verre est plein on le vide. Et quand il est vide on le plaint.
+On boira du lait quand les vaches mangeront du raisin.
+Conduire ou choisir, il faut boire.
 
